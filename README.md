@@ -7,6 +7,6 @@ Find me on social media!
 
 - My Pinterest!: https://www.pinterest.com/brinvxs/
 - My Magazine Page on Tiktok! : https://www.tiktok.com/@briinvxs
-<img src="https://wifflegif.com/gifs/685203-black-and-white-photography-gif">
+<img src="![image](https://github.com/user-attachments/assets/908ad473-24cc-4270-a224-ec5711db3aca)">
 
 
