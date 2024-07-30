@@ -7,7 +7,6 @@ Find me on social media!
 
 - My Pinterest!: https://www.pinterest.com/brinvxs/
 - My Magazine Page on Tiktok! : https://www.tiktok.com/@briinvxs
-<img src="![image](https://github.com/user-attachments/assets/f8419cfe-57be-4438-bd46-ed5befb8eb00)
-">
+<img src="">
 
 
