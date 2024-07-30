@@ -8,5 +8,4 @@ Find me on social media!
 - My Pinterest!: https://www.pinterest.com/brinvxs/
 - My Magazine Page on Tiktok! : https://www.tiktok.com/@briinvxs
 
-https://media4.giphy.com/media/YzWzkxyCdN55K/giphy.gif?cid=6c09b952f1aj61wc07pqdqlyqi4xqz03tzjahelz706j0c85&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g
 
